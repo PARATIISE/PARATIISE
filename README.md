@@ -9,9 +9,9 @@
 
 ### Minors IWEC or just DNI.
 
-Short interactions if anything.
+Short interactions if anything
 
-I feel as though it is a given to not be weird and mind your words. Do not mention anything NSFW or suggestive unless we are close as friends and in age.
+I feel as though it is a given to not be weird and mind your words
 
 I block freely
 
