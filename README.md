@@ -3,7 +3,29 @@
 
 > ⛔ = dniuid
 
-> will help with object limit
+<details>
+
+<summary>safe server boundaries</summary>
+
+### Minors IWEC or just DNI.
+
+Short interactions if anything.
+
+I feel as though it is a given to not be weird and mind your words. Do not mention anything NSFW or suggestive unless we are close as friends and in age.
+
+I block freely
+
+</details>
+
+<details>
+
+<summary>supporter</summary>
+
+#### hi yes i will help you unless im on ⛔
+
+i will not help on safe server. any other server is ok!
+
+</details>
 
 <p align="left">
   <a href="https://github.com/kittinan/spotify-github-profile">
