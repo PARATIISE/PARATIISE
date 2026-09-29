@@ -17,15 +17,6 @@ I block freely
 
 </details>
 
-<details>
-
-<summary>supporter</summary>
-
-#### hi yes i will help you unless im on ⛔
-
-i will not help on safe server. any other server is ok!
-
-</details>
 
 <p align="left">
   <a href="https://github.com/kittinan/spotify-github-profile">
